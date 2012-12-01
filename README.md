@@ -1,0 +1,1 @@
+From [http://lesswrong.com/lw/3w3/how_to_beat_procrastination/](http://lesswrong.com/lw/3w3/how_to_beat_procrastination/), the motivational formula. Just answer some simple question to determine your level of motivation for a given task.
